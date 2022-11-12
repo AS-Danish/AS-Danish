@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @justt-danish
+- 👀 I’m interested insoftware development and Web Development 
+- 🌱 I’m currently learning Web Development
+- 📫 How to reach me www.instagram.com/idaniish
